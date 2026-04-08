@@ -1,19 +1,11 @@
-<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aoitxnha2su45j7kxcvdqfzjva&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aoitxnha2su45j7kxcvdqfzjva&cover_image=true&theme=default&show_offline=true&background_color=fcb0ce&interchange=false&profanity=false&bar_color=8ee3ff&bar_color_cover=false">
+<p align="center"> ![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://myoctocat.com/assets/images/base-octocat.svg)
 
 
+<p align="center">he/she + any 17 </p>
+<p align="center">read my carrd/rentry & sign my ata!!! 
+<p align="center">eng infp-t 6w5</p>
+<p align="center">prince of heart</p>
+<p align="center">im a fucking unicorn (๑>ᴗ<๑)</p>
 
-
-**ttrillium/ttrillium** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aoitxnha2su45j7kxcvdqfzjva&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aoitxnha2su45j7kxcvdqfzjva&cover_image=true&theme=default&show_offline=true&background_color=fcb0ce&interchange=false&profanity=false&bar_color=8ee3ff&bar_color_cover=false"></p>
