@@ -1,4 +1,4 @@
-<p align="center"> ![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://myoctocat.com/assets/images/base-octocat.svg)
+<p align="center"> ![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.]([https://myoctocat.com/assets/images/base-octocat.svg](https://64.media.tumblr.com/5e5d3baf07598bc1b63ab7404bbb99b6/375109736b4cf723-ef/s1280x1920/61e797744618acf54c40c394768e2f1d42aed539.pnj))
 
 
 <p align="center">he/she + any 17 </p>
