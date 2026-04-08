@@ -1,11 +1,4 @@
-## Hi there 👋
-
-<--
-![](https://64.media.tumblr.com/e0ab074c64fc9d78f39b24d841078932/0443b5c8fce2799a-2e/s2048x3072/7a275f5c09918e77e0f78dc7caf51efb0f117ea9.pnj)
-
-![](https://64.media.tumblr.com/20cb2f9f1cde0a89cde82e0a313f8402/c9806d566ba85272-ab/s400x600/46a856f179f1d0399f87873fd3f1c1273d287603.pnj)
-
-   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aoitxnha2su45j7kxcvdqfzjva&redirect=true">
+<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aoitxnha2su45j7kxcvdqfzjva&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aoitxnha2su45j7kxcvdqfzjva&cover_image=true&theme=default&show_offline=true&background_color=fcb0ce&interchange=false&profanity=false&bar_color=8ee3ff&bar_color_cover=false">
 
 
