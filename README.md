@@ -3,7 +3,7 @@
 <p align="center"> <img src="https://files.catbox.moe/oonrqm.png" width="200"></p>
 <p align="center"> 
 <p align="center">he/she + any ⋆˚꩜｡ 17</p>
-<p align="center">read my rentry & sign my ata!!
+<p align="center"> sign my ata & strawpage!!
 <p align="center">im a fucking unicorn (๑>ᴗ<๑)</p>
 <p align="center"> <img src="https://64.media.tumblr.com/796d6c29aabe96cc0a5a900a757e846b/320f0043bf792d10-fa/s100x200/7d239488d51405039042d80a229a0a41f6c656fe.pnj" width="90"> <img src="https://64.media.tumblr.com/68bb9e71ec030bfeb579002c6761aa36/82b09546462aa32b-10/s100x200/9e79751b79072187831c74f9098acfc865abfe7c.gif" width="90"> <img src="https://64.media.tumblr.com/246e39c2dfae1cb369873728bca0b77a/79d8b316934d24c3-3d/s100x200/83b4a7d824bbfaebe5e81757a385aa83eec34ef0.gifv" width="90"></p>
 <p align="center">
