@@ -1,7 +1,6 @@
-<p align="center"> <img src="https://64.media.tumblr.com/5e5d3baf07598bc1b63ab7404bbb99b6/375109736b4cf723-ef/s1280x1920/61e797744618acf54c40c394768e2f1d42aed539.pnj" width="400"></p>
-<p align="center"> <img src="https://64.media.tumblr.com/36de8a7e7d8b80e01541da2f287d1320/01c1a02be25d48e5-f5/s2048x3072/aa0885d67657af0c26bde5784cf89aa9e3ac3cc5.pnj" width="650"></p>
-<p align="center"> <img src="https://files.catbox.moe/oonrqm.png" width="200"></p>
-<p align="center"> 
+<p align="center"> <img src="https://64.media.tumblr.com/67051859b67f888f018bbf55827086cc/f6ffb62bda03524b-8b/s1280x1920/b8da197d36a5f452d76f86c40117f12832a62ffe.pnj" width="400"></p>
+<p align="center"> <img src="https://64.media.tumblr.com/c4d0fec93493c0ab86d984e73b72745e/a04c95918a174649-16/s1280x1920/ff3b1246edba69d3d6d2ded8a5cf101f3a3d8418.pnj" width="650"></p>
+<p align="center"> <img src="https://files.catbox.moe/m9jjix.png" width="200"></p>
 <p align="center">he/she + any ⋆˚꩜｡ 17</p>
 <p align="center"> sign my ata & strawpage!!
 <p align="center">im a fucking unicorn (๑>ᴗ<๑)</p>
