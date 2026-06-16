@@ -2,7 +2,7 @@
 <p align="center"> <img src="https://64.media.tumblr.com/67051859b67f888f018bbf55827086cc/f6ffb62bda03524b-8b/s1280x1920/b8da197d36a5f452d76f86c40117f12832a62ffe.pnj" width="400"></p>
 <p align="center"> <img src="https://64.media.tumblr.com/c4d0fec93493c0ab86d984e73b72745e/a04c95918a174649-16/s1280x1920/ff3b1246edba69d3d6d2ded8a5cf101f3a3d8418.pnj" width="650"></p>
 <p align="center"> <img src="https://images.cooltext.com/5756622.png" width="230"></p>
-<p align="center">theythem,, any 🍊 fictkin *freaks&geeks*</p>
+<p align="center">theythem,, any 🍊 fictkin OFKTA
 <p align="center"> <img src="https://i.pinimg.com/vwebp/736x/9a/41/b4/9a41b4c3354db1d99cb5f929b4635d6b.webp" width="55"> <img src="https://i.pinimg.com/736x/fe/18/72/fe1872412d9e0ef67146c36b660b82c8.jpg" width="55"> <img src="https://i.pinimg.com/vwebp/1200x/3d/3a/3d/3d3a3dfe8a442e265d26502af1b6a208.webp" width="55"></p>
 <p align="center"> <img src="https://64.media.tumblr.com/a8d849ed1e376d58f3f79aa6761f4d43/3c827b005c87ad07-39/s75x75_c1/54dc55616c02766a09dbbc42f3efcea668e6845f.gif" width="18"> sign my ata & strawpage
 <p align="center">prince of heartᯓ★</p>
