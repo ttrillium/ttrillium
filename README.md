@@ -13,4 +13,3 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aoitxnha2su45j7kxcvdqfzjva&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=fcb0ce&bar_color_cover=true">
   </a>
 </p>
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=ttrillium&color=ce1c6b" </p> 
