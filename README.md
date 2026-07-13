@@ -2,7 +2,7 @@
 <p align="center"> <img src="https://64.media.tumblr.com/67051859b67f888f018bbf55827086cc/f6ffb62bda03524b-8b/s1280x1920/b8da197d36a5f452d76f86c40117f12832a62ffe.pnj" width="400"></p>
 <p align="center"> <img src="https://64.media.tumblr.com/c4d0fec93493c0ab86d984e73b72745e/a04c95918a174649-16/s1280x1920/ff3b1246edba69d3d6d2ded8a5cf101f3a3d8418.pnj" width="650"></p>
 <p align="center"> <img src="https://images.cooltext.com/5756622.png" width="230"></p>
-<p align="center">dirk or kris 🍊🍎 hehim</p> 
+<p align="center">dirk or tyler 🍊🍎 hehim</p> 
 <p align="center">(¬_¬") intp-t fictkin OFKTA</p>
 <p align="center">derse knight of heart</p>
 <p align="center">i <3 my moirail&friends</p>
