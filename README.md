@@ -10,7 +10,7 @@
       width="600"></p>
   <p align="center"> <img src="https://files.catbox.moe/tvesv5.png" width="300">
   </p>
-  ## $$ \color{#ff5733}{\textRabbit or <i>HABIT</i>?}$$</h2>
+<h2 align="center"> Rabbit or $${\color{#483434}HABIT?}$$</h2> 
 
 <p align="center"> $${\color{#483434}evan/dirk/tyler}$$</p> 
 
