@@ -10,9 +10,9 @@
       width="600"></p>
   <p align="center"> <img src="https://files.catbox.moe/tvesv5.png" width="300">
   </p>
-<h2 align="center"> Rabbit or $${\color{#483434}HABIT?}$$</h2> 
+<h2 align="center"> Rabbit or <i>HABIT?</i></h2> 
 
-<p align="center"> $${\color{#483434}evan/dirk/tyler}$$</p> 
+<p align="center"> evan/dirk/tyler</p> 
 
 <p align="center"> <img src="https://64.media.tumblr.com/a11dc2ab7456ea5603f3553aeaa5d147/32d0fe5b363b4376-ff/s400x600/9cf71b774e7f0bd27a69acae8e6dba2a27f41898.gif" width="60.66" height="36"> <img src="https://64.media.tumblr.com/a2bb8b89275d3c390eb4d6519cbcf076/32d0fe5b363b4376-63/s250x400/42dad7ac12be17be78d30370c8537a13763b580f.gif" width="60.66" height="36"></p>
 <p align="center"> <img src="https://64.media.tumblr.com/843fe4478a9028fc6e8309d3ab0cb5a5/cf7fa5f2566ea3f6-dd/s400x600/f8c2c598f27bb6d63539934a20ad844b5a362824.gif" width="105"></p>
